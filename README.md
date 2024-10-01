@@ -17,6 +17,6 @@ Don’t be disrespectful
 
 ## Meeting Times 
 ### Tuesdays and Thurdays
-- Virutal (7:30 - 8:00)
+- Virutal (7:30PM - 8:00PM)
 ### Mondays or Wensdays
-- In Person Between (2 - 4PM) 
+- In Person Between (2PM - 4PM) 
