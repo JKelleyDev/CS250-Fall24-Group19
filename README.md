@@ -20,3 +20,6 @@ Don’t be disrespectful
 - Virutal (7:30PM - 8:00PM)
 ### Mondays or Wensdays
 - In Person Between (2PM - 4PM) 
+
+## Communication Method
+- Instagram Group Chat
