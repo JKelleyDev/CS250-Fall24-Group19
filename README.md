@@ -1,6 +1,6 @@
 # CS250-Fall24-Group19
 ## Group Members 
-Jordan Kelley (SDSU Email)[mailto:jkelley1633@sdsu.edu]
+Jordan Kelley [SDSU Email](mailto:jkelley1633@sdsu.edu)
 
 
 # Group 19 Contract: 
