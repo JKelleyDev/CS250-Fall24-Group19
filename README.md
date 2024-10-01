@@ -14,3 +14,9 @@ Realize your efforts don’t affect just your grade, but others too
 Don’t run with your own ideas without the group agreeing on that approach 
 Don’t be a dictator 
 Don’t be disrespectful  
+
+## Meeting Times 
+### Tuesdays and Thurdays
+- Virutal (7:30 - 8:00)
+### Mondays or Wensdays
+- In Person Between (2 - 4PM) 
