@@ -2,6 +2,7 @@
 ## Group Members 
 Jordan Kelley [SDSU Email](mailto:jkelley1633@sdsu.edu)
 David Martinez [SDSU Email](mailto:cmartinez1542@sdsu.edu)
+Buchard Joseph [SDSU Email](mailto:bjoseph5524@sdsu.edu)
 
 
 
